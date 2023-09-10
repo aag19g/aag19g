@@ -1,3 +1,3 @@
 ### Hi there 👋
-### 🌱 I’m currently learning how to create program
-### Fun fact: A ripe fruit can ripe other fruits.
+### 🌱 I’m currently learning how to program like an artist
+### Fun fact: Panama City, Panama is shaped like an "S".
